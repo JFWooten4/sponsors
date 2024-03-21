@@ -43,7 +43,7 @@ John Wooten
 
 The opportunity to share my experiences and knowledge along with my passion to inspire others is what motivated me to write this book.
 
-Anthony Morrison
+- Anthony Morrison
 
 ---
 
