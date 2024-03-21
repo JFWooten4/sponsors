@@ -1,10 +1,10 @@
-Reaching the peak takes more than skill. Only those with the ambition to RISE above all others will know its height.
+_Reaching the peak takes more than skill. Only those with the ambition to RISE above all others will know its height._
 
 — Unknown, League of Legends
 
 ---
 
-Society grows when old men plant trees whose shade they know they shall never sit in.
+_Society grows when old men plant trees whose shade they know they shall never sit in._
 
 — Greek Proverb
 
@@ -43,7 +43,7 @@ John Wooten
 
 The opportunity to share my experiences and knowledge along with my passion to inspire others is what motivated me to write this book.
 
-- Anthony Morrison
+— Anthony Morrison
 
 ---
 
