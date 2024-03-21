@@ -19,8 +19,6 @@ Society grows when old men plant trees whose shade they know they shall never si
 
 Here you’ll find years of quotes distilled down to only the most motivational. The most impactful. The most fundamental truths we all must master to find success.
 
-Enjoy,
-
 ---
  
 I’ve been putting off publishing this book for the better part of six years. I feel silly writing it out like that, but it’s the truth. I’ve always loved learning about things on my own, as I suspect you do too, if you picked up this book.
@@ -38,6 +36,7 @@ The quotes in this book come from essentially four or five years of consuming ed
 
 I’ve cohobated hundreds of years of collective experience in this collection of quotes. May they bring you great fortune, determination, and success.
 
+Enjoy,
 John Wooten
 
 ---
