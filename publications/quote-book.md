@@ -958,3 +958,8 @@ Seek mentors. I have a lot of people I talk to on a regular basis, people I talk
 
 Once you go through that door, go through that door boldly.
 — Allan Cheng
+
+---
+
+Only an unimaginative man would ever think that mechanistic, command-and-control organizations could ever create a free, enduring, equitable, peaceful society. Only a greedy man would create them. Only an arrogant man would run them. Only a cruel man would perpetuate them.
+— [Dee Hock](https://www.deewhock.com/quotations/2019/2/19/february-2019-reflectionseverything/)
